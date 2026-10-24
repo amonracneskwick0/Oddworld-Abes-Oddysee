@@ -215,4 +215,4 @@ Oddworld: Abe's Oddysee is available as a full free version with all features an
 Start your adventure with Oddworld: Abe's Oddysee today and experience a timeless classic! Download now and help Abe save his friends!
 
 ---
-**Last updated:** 2026-10-24 07:42:49 UTC
+**Last updated:** 2026-10-24 12:19:06 UTC
